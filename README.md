@@ -1,4 +1,6 @@
-Introduction In a global wherein we closely depend increasingly more over the years on on line systems and packages together with Netflix, Amazon, Spotify etc. we're locating ourselves having to continuously pick out from a huge variety of alternatives.
+Introduction
+
+In a global wherein we closely depend increasingly more over the years on on line systems and packages together with Netflix, Amazon, Spotify etc. we're locating ourselves having to continuously pick out from a huge variety of alternatives.
 
 One might imagine that having many alternatives is right thing, instead of having very few, however an extra of alternatives can result in what is understood as "choice paralysis". As Barry Schwartz writes in The Paradox of Choice:
 
